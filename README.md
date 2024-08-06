@@ -14,4 +14,4 @@
 
 Qualquer dúvida entre em contato
 <a href="felix.guimaraes@escola.pr.gov.br" target="_blank"><img src="https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white&quot; target="_blank"/></a>
-![](https://media1.tenor.com/m/-XCoBgHXvCIAAAAd/rabbit.gif)
+![](https://media1.tenor.com/m/LHpfjoP6TZ4AAAAC/thank-you.gif)
